@@ -2,7 +2,7 @@
 
 ⏰加入扣扣吃瓜群：http://b.j4h.cn/2yQQsU
 
-⏰免翻入口导航：https://www.cgbl08.cc/  （最新）
+⏰免翻入口导航：https://www.cgbl09.cc/  （最新）
 
 ⏰免翻入口6：https://blccgg.dyblzx5.com/
 
