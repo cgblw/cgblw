@@ -4,9 +4,9 @@
 
 ⏰免翻入口导航：https://www.CGBL13.cc/  （最新）
 
-⏰免翻入口6：https://f5x3.ot6cgbl.com/
+⏰免翻入口6：https://fd42.ot6cgbl.com/
 
-⏰免翻入口5：https://4545511.ot6cgbl.com/
+⏰免翻入口5：https://5451846.ot6cgbl.com/
 
 ⏰免翻入口4：https://blcgw.ot6cgbl.com/
 
@@ -14,7 +14,7 @@
 
 ⏰免翻入口2：https://ccggbl.ot6cgbl.com/
 
-⏰免翻入口1：https://n86cgbl.com/
+⏰免翻入口1：https://txccgbl.com/
 
 telegram:https://t.me/cgblzx
 
