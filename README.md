@@ -14,7 +14,7 @@
 
 ⏰免翻入口2：https://ccggbl.kiwcgbl.com/
 
-⏰免翻入口1：https://zs0cgbl.com/
+⏰免翻入口1：https://enucgbl.com/
 
 telegram:https://t.me/cgblw_zx
 
