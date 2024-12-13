@@ -16,6 +16,6 @@
 
 ⏰免翻入口1：https://2idcgbl.com/
 
-telegram:https://t.me/cgblw_zx
+telegram:https://t.me/cgblw_sq
 
 
