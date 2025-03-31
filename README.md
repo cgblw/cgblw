@@ -4,15 +4,15 @@
 
 ⏰免翻入口导航：https://www.CGBL16.cc/  （最新）
 
-⏰免翻入口6：https://fhde.hqqcgbl.com/
+⏰免翻入口6：https://fhde.ozecgbl.com/
 
-⏰免翻入口5：https://5451846.hqqcgbl.com/
+⏰免翻入口5：https://5451846.ozecgbl.com/
 
-⏰免翻入口4：https://blcgw.hqqcgbl.com/
+⏰免翻入口4：https://blcgw.ozecgbl.com/
 
-⏰免翻入口3：https://cgbl.hqqcgbl.com/
+⏰免翻入口3：https://cgbl.ozecgbl.com/
 
-⏰免翻入口2：https://ccggbl.hqqcgbl.com/
+⏰免翻入口2：https://ccggbl.ozecgbl.com/
 
 ⏰免翻入口1：https://eilcgbl.com/
 
