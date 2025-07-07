@@ -4,15 +4,15 @@
 
 ⏰免翻入口导航：https://www.CGBL22.cc/  （最新）
 
-⏰免翻入口6：https://h6iy.gwrcgbl.cc/
+⏰免翻入口6：https://h6iy.b2vcgbl.cc/
 
-⏰免翻入口5：https://1548791.gwrcgbl.cc/
+⏰免翻入口5：https://1548791.b2vcgbl.cc/
 
-⏰免翻入口4：https://cgdbl.gwrcgbl.cc/
+⏰免翻入口4：https://cgdbl.b2vcgbl.cc/
 
-⏰免翻入口3：https://zkcgw.gwrcgbl.cc/
+⏰免翻入口3：https://zkcgw.b2vcgbl.cc/
 
-⏰免翻入口2：https://xcgkbl.gwrcgbl.cc/
+⏰免翻入口2：https://xcgkbl.b2vcgbl.cc/
 
 ⏰免翻入口1：https://rrqcgbl.cc/
 
