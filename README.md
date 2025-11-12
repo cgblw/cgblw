@@ -2,7 +2,7 @@
 
 ⏰加入扣扣吃瓜群：http://e.idzunqt43.cn/s/RSxz
 
-⏰免翻入口导航：https://www.CGBL44.cc/  （最新）
+⏰免翻入口导航：https://www.CGBL45.cc/  （最新）
 
 ⏰免翻入口6：https://h6iy.da4cgbl.cc/
 
